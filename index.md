@@ -1,3 +1,3 @@
-# Some header
+# Welcome to the page of LortKrassbeter!
 
-some paragraph
+The world shall now know about another strange creature walking its ground...
