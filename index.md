@@ -1,3 +1,3 @@
-# Welcome to the page of LortKrassbeter!
+# Welcome to the page of LortKrassbeter
 
 The world shall now know about another strange creature walking its ground...
