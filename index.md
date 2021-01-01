@@ -1,5 +1,9 @@
-# Welcome
+# All Posts 
 
-The world shall now know about another strange creature walking its ground
+Some link to [test.md](/test)
 
-Some link to [test.md](test.md)
+---
+
+Jan 3rd, 2021
+ 
+[Getting started](/blog/2021/getting-started)
