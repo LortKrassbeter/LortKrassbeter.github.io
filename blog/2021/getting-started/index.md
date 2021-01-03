@@ -1,6 +1,5 @@
 # Getting started
 
-
 This post serves one purpose and one purpose only: getting started with a habit of writing.
 
 Like many people, I once had a travel blog when I was studying abroad. Probably like many people I had hoped to carry over the routine of writing to my routine of life. For me this did not occur and instead my last post was about my last days abroad.
