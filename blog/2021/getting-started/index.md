@@ -8,7 +8,7 @@ Now I realize that this makes perfect sense. Travelling or living abroad natural
 
 ![Image](monarch.png)
 
-When it comes to sustaining a writing habit in the busy world of daily life the incentives don't quite align. Hmm, it seems as if the capability of excitement is impeded by routine. Guess what: routine _is_ boring, in a sense, or rather viewed from a certain perspective. But this doesn't meant that there is nothing new and exciting happening. In fact, by virtue of being human we can not cease to notice patterns in the noise and make connections that nobody has made before.
+When it comes to sustaining a writing habit in the busy world of daily life the incentives don't quite align. Hmm, it seems as if the capability of excitement is impeded by routine. Guess what: routine _is_ boring, in a sense, or rather viewed from a certain perspective. But this doesn't mean that there is nothing new and exciting happening. In fact, by virtue of being human we can not cease to notice patterns in the noise and make connections that nobody has made before.
 
 But how to incorporate these random events of inspiration with a solid writing habit? When the moment strikes, we are unlikely to be ready to write and when sitting down to write away, an exiting event is improbable. Thus, must a habit of writing be futile? How to make sure we are not running short of wonder?
 
