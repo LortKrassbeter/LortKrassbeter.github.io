@@ -23,3 +23,6 @@ With these tips I, myself, hope to get started on the way to a writing habit tha
 As my list of super exciting pieces of inspiration is growing I will share some of them on this site for everyone's amusement!
 
 Happy new year 2021 and stay healthy everyone!
+
+
+[Top](#getting-started)
