@@ -1,1 +1,1 @@
-# A distributed space
+# blog template
